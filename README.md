@@ -34,7 +34,7 @@ Machine Learning, Artificial Intelligence, Deep Learning, Applied AI
 ⭐ Feel free to explore my repositories and connect!
 
 Fun facts:-
-> I have a dog and a parrot
-> I have a 1976 royal enfield retro bike.
-> Most important thing for me is my mental peace✌️
-> Hobbies:- Biking, Traveling, Combat sport.
+• I have a dog and a parrot
+• I have a 1976 royal enfield retro bike.
+• Most important thing for me is my mental peace✌️
+• Hobbies:- Biking, Traveling, Combat sport.
